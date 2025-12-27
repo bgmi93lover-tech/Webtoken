@@ -104,4 +104,7 @@ igg
 ohh
 ohhy
 iuy
+
+
+kfc
 ooi
